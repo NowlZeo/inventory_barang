@@ -10,4 +10,4 @@ Nama Anggota:
 1. Sonia Marselina (1910631170047)
 2. Widya Dini Alfina (1910631170054)
 3. Yunita Nurrohmah (1910631170056)
-4. Alif Iqbal Oktarianto (1910631170064
+4. Alif Iqbal Oktarianto (1910631170064)
